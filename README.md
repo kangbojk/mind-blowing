@@ -1,7 +1,3 @@
-<p align="center">
-<img src="blow.gif" width="340"/>
-</p>
-
 * Just knowing how to use github page can allow you launch an online coure -> something trivial to you might be precious to others 
 
 * You'll be fine if you don't watch/read news.
