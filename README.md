@@ -18,6 +18,6 @@
 
 * Just looking at your posture the hunters know whether you're a good pery -> "The Wisdom of Psychopaths"
 
-* How did Ichiro Suzuki throw so fast? Soft muscle.
+* How did Ichiro Suzuki throw so fast? [Soft muscle](https://youtu.be/vV3jc_OTY6Y?t=496)
 
 * Advanced pianist sight-read via pattern instead of note by note.
